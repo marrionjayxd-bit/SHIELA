@@ -1,2 +1,0 @@
-# SHIELA
-Valentine's letter
